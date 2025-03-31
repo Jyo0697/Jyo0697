@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning Data Analytics
 - 📫 How to reach me jyotshnawork97@gmail.com
 - 😄 Pronouns: She
+- Linkedin: https://www.linkedin.com/in/jyotshna-janjanam-0a6944154/
 
 
 <!---
