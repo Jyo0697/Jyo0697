@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jyo0697
 - 👀 I’m interested in books
-- 🌱 I’m currently learning Data Analytics
+- 🌱 Data Analyst
 - 📫 How to reach me jyotshnawork97@gmail.com
 - 😄 Pronouns: She
 - Linkedin: https://www.linkedin.com/in/jyotshna-janjanam-0a6944154/
